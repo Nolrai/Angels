@@ -27,3 +27,28 @@ Thoughts:
 - Nexus points provide the energy/will/ability for Heavens when Sundered, but Sundering can also destory the world.
 - Without Sundering the world ends in a cold whimper of petty ruined logistics.
 - Aztek Sun myths about remaking the world/heaven/blood will be spent, or the stars and the moon will tear the Sun from the sky. (metaphor? global warming, A.I., Aliens)
+
+Chargen:
+- what is your home's best feature?
+- What is your Agent? Tough vs. Replacable
+
+Disperced Power:
+- Wealth
+- Authority
+- labor
+- information
+
+Trats of Power
+- Resiliant
+- Subtle
+- Breadth
+- Focus
+- Informed
+- Flexible
+
+Centralized Power
+- Hardened
+- Moble
+- Hiden
+- Connected
+- Deciduous 
